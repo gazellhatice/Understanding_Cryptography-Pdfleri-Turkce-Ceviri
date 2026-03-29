@@ -3,7 +3,7 @@
 Bilgi Güvenliği
 Dersi Pdflerinin Türkçeye çevrilmiş olanlarıdır.
 Çevirdikçe kalan pdfleri de yükleyeceğim.
-Pdf'lerde hata görürseniz Linkedin hesabım üzerinden iletişime geçmeniz halinde bende düzeltip yüklemiş olurum tekrardan.
+Pdf'lerde hata görürseniz profildeki Linkedin hesabım üzerinden iletişime geçmeniz halinde bende düzeltip yüklemiş olurum tekrardan.
 Google Çeviri ile çevirdim.
 Teşekkürler.
 Kolay gelsin. :)
